@@ -1,14 +1,14 @@
 # House sitting summary
 
 
-## Wake up and bed time
+### Wake up and bed time
 ---
 
 - Dogs will usually wake up and let you know they have to go out around 7am.
 - Bedtime, they just go in their crates. Whenever you go to bed is fine.
 
 
-## Dog meals
+### Dog meals
 ---
 
 ### Breakfast
@@ -29,6 +29,11 @@
 - With a little water, get some of the dregs from the cat food can, add to the dog food bowl
 - Pour a bit of the food from Henry's bowl into Finch's. Then feed Henry.
 
+
+### After dinner chill
+
+If they're being good, feel free to give them a chew. Finch gets 3 greenies max (one at a time), Henry gets one big chew. They're above the pantry.
+
 ## When you go out
 
 - Put them in their crates when/if you leave. Try to keep it to like 5 hours max. We usually grab a greenie each and tell them to go to crates. Henry is good, Finch might just need to be picked up
@@ -39,6 +44,14 @@
 - The cats have an automatic litterbox, so it should be fine. Just check it once in awhile to make sure it has litter in it. If it's low, toss a scoop in.
 
 
-## Other stuff
+## Finch is yelling at me. What does it mean?
 
-- 
+- Outside
+- Breakfast
+- Dinner
+- Blanket (just toss one on her)
+- Chew please.
+
+## Finch isn't eating!
+
+- This happens sometimes. She gets ulcers and needs a whole med routine. Just let me know; my Mom's on call and can come grab her.
