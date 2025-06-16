@@ -44,6 +44,12 @@ If they're being good, feel free to give them a chew. Finch gets 3 greenies max 
 - The cats have an automatic litterbox, so it should be fine. Just check it once in awhile to make sure it has litter in it. If it's low, toss a scoop in.
 
 
+## Water bowls
+
+- Check the cat's water fountain every couple days. If low, fill with the pink watering can
+- Fill/replace the dogs' water bowl every day
+
+
 ## Finch is yelling at me. What does it mean?
 
 - Outside
