@@ -22,6 +22,7 @@
 
 ### Dinner
 
+This looks like a lot of steps; I'm just giving you my combo move:
 - Using Henry's bowl, fill one scoop of dehydrated food (it's in the container)
 - Add 2-3 seconds of water from the faucet, set down to soak
 - Grab a fork, and a can of cat food from above the pantry.
