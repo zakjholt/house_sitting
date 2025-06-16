@@ -60,4 +60,4 @@ If they're being good, feel free to give them a chew. Finch gets 3 greenies max 
 
 ## Finch isn't eating!
 
-- This happens sometimes. She gets ulcers and needs a whole med routine. Just let me know; my Mom's on call and can come grab her.
+- This happens sometimes. She gets ulcers and needs a whole med routine. Just let me know; my Mom's on call and can come grab her. If this happens, just make sure to give my mom the blue pill bottle (by the sink), and a couple cans of food.
